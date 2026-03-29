@@ -6,7 +6,7 @@ VA - House Vip (15.04.10) [MP3|192-320 kbps]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840405.jpg" />
+  <img src="Z:/picture/008/save_picture_840405.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840393.jpg" />
+  <img src="Z:/picture/008/save_picture_840393.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840392.jpg" />
+  <img src="Z:/picture/008/save_picture_840392.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Microsoft Windows 10 Enterprise Technical Preview 10036 (x86) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840352.jpg" />
+  <img src="Z:/picture/008/save_picture_840352.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840324.jpg" />
+  <img src="Z:/picture/008/save_picture_840324.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840322.jpg" />
+  <img src="Z:/picture/008/save_picture_840322.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840321.jpg" />
+  <img src="Z:/picture/008/save_picture_840321.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840320.jpg" />
+  <img src="Z:/picture/008/save_picture_840320.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Forecast Bar 2.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840319.jpg" />
+  <img src="Z:/picture/008/save_picture_840319.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - This Is How Trance Works Extended Vol.8 (2016) [MP3|320 кб/с] <Trance, U
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840307.jpg" />
+  <img src="Z:/picture/008/save_picture_840307.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Microsoft Windows 10 Pro Technical Preview 10.0.10036 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840245.jpg" />
+  <img src="Z:/picture/008/save_picture_840245.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840237.jpg" />
+  <img src="Z:/picture/008/save_picture_840237.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ VA - Standard Gravity LP (2010) [MP3|320 kbps]<Atmospheric Drum'n'Bass, Liquid F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840223.jpg" />
+  <img src="Z:/picture/008/save_picture_840223.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Various Artists - The Book Ov Shadowz (1998) [MP3|320 kbps] <Dark Ambient, Indus
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840220.jpg" />
+  <img src="Z:/picture/008/save_picture_840220.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840219.jpg" />
+  <img src="Z:/picture/008/save_picture_840219.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840218.jpg" />
+  <img src="Z:/picture/008/save_picture_840218.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840217.jpg" />
+  <img src="Z:/picture/008/save_picture_840217.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840216.jpg" />
+  <img src="Z:/picture/008/save_picture_840216.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840215.jpg" />
+  <img src="Z:/picture/008/save_picture_840215.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840214.jpg" />
+  <img src="Z:/picture/008/save_picture_840214.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840213.jpg" />
+  <img src="Z:/picture/008/save_picture_840213.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840212.jpg" />
+  <img src="Z:/picture/008/save_picture_840212.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840209.jpg" />
+  <img src="Z:/picture/008/save_picture_840209.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ PaintCode 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840205.jpg" />
+  <img src="Z:/picture/008/save_picture_840205.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840199.jpg" />
+  <img src="Z:/picture/008/save_picture_840199.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ Soulver 2.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840194.jpg" />
+  <img src="Z:/picture/008/save_picture_840194.jpg" />
 </div>
 
 

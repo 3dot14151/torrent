@@ -1,3 +1,140 @@
+###  Публикация: 1418762   (346275) от 25.10.2020
+
+[Udemy] Alex Wilder | Настройка и ускорение компьютера для чайников (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_346275.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном курсе вы научитесь оптимизировать на максимальную производительность компьютеры с операционными системами от Microsoft (Windows 7, Windows 10), а также компьютеры фирмы Apple с операционной системой OSX.
+Мы рассмотрим вопросы очистки от нежелательных и вредоносных программ, оптимальной настройки сервисов, оптимизации памяти, безопасности данных, установки (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеПродолжительность: 01:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F924951F8094112B2A14B76DD9F87F61D3A39834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953426   (346089) от 05.11.2015
+
+Empo | Контекстная реклама Google AdWords (2015) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_346089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алгоритмы «тонкой» настройки AdWords с внедрением на вашем сайте.
+
+Практический тренинг.
+Деньги уходят как в трубу, а звонков мало?(   Читать дальше...   )Жанр: Google AdWords, Интернет-маркетингПродолжительность: 14:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B941873C0DB87032C140B7DCE060F469784AAE5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418831   (345997) от 25.10.2020
+
+Codeby | Paranoid - анонимность и безопасность в сети (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный курс о комплексе мер по защите информации, защите персональных данных, конфиденциальности, анонимности в интернете. Подробно рассматривается настройка виртуальных машин, безопасная передача данных, анонимность в сети, анти-форензика и многое другое.Производство: Ethical Hacking Tutorial Group The CodebyЖанр: АдминистрированиеЯзык озвучки: РусскийПродолжительность: 07:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9150044DB5D4C90FB601F0031E399B04C60D149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578548   (345368) от 23.09.2022
+
+Udemy, Parv Shah | Dark Web: Complete Introduction to the Deep/Dark Web 2022 (2021) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы много раз слышали о Deep Web / Dark Web, но никогда не имели ни малейшего представления о том, что это такое?
+Вы когда-нибудь задумывались о том, какой была бы Скрытая сторона сети?
+Вам интересно исследовать Скрытую область Интернета, но вы не можете этого сделать по соображениям безопасности?
+DarkWeb: Полное введение в Deep / Dark Web 2021 сделано для вас! Вы (   Читать дальше...   )Производство: UdemyЖанр: Программирование, DarkWeb, Ethical HackingЯзык озвучки: АнглийскийПродолжительность: 02:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758F90EAAB4F448DB02622104201488DECA05587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418866   (344115) от 26.10.2020
+
+[Udemy] Andrew Hulenko и др. | React Bootcamp 2020 (с React Hooks, Firebase) / The Complete React Bootcamp 2020 (w/ React Hooks, Firebase) (2020) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_344115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс посвящен React - библиотеке, которая помогает разработчикам создавать пользовательские интерфейсы в интернете. Но React не ограничивается только пользовательскими интерфейсами, это еще не все. Вы когда-нибудь задумывались, как создаются веб-сайты Facebook, Twitter или Netflix и почему они совсем не похожи на веб-сайты? React может ответить на все это. В (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 16:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948EE871E86395CE9B2FC97972889C377A6CE958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418937   (344097) от 26.10.2020
 
 [nodecli.com] Ahmad Awais | Node.js CLI | Автоматизация Node CLI / Node.js CLI | Build Node.js Command-line Automation Dev-tools (2020) PCRec [En]
@@ -6,7 +143,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344097.jpg" />
+  <img src="Z:/picture/008/save_picture_344097.jpg" />
 </div>
 
 
@@ -33,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343949.jpg" />
+  <img src="Z:/picture/008/save_picture_343949.jpg" />
 </div>
 
 
@@ -59,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343947.jpg" />
+  <img src="Z:/picture/008/save_picture_343947.jpg" />
 </div>
 
 
@@ -85,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341993.jpg" />
+  <img src="Z:/picture/008/save_picture_341993.jpg" />
 </div>
 
 
@@ -113,7 +250,7 @@ IT Security Academy Hacking School | IT Безопасность Для Начи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341989.jpg" />
+  <img src="Z:/picture/008/save_picture_341989.jpg" />
 </div>
 
 
@@ -139,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341975.jpg" />
+  <img src="Z:/picture/008/save_picture_341975.jpg" />
 </div>
 
 
@@ -167,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341866.jpg" />
+  <img src="Z:/picture/008/save_picture_341866.jpg" />
 </div>
 
 
@@ -193,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341757.jpg" />
+  <img src="Z:/picture/008/save_picture_341757.jpg" />
 </div>
 
 
@@ -220,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341630.jpg" />
+  <img src="Z:/picture/008/save_picture_341630.jpg" />
 </div>
 
 
@@ -246,7 +383,7 @@ Thinknetica Pro, Антон Давыдов | Dry-rb: что, зачем и ка�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340652.jpg" />
+  <img src="Z:/picture/008/save_picture_340652.jpg" />
 </div>
 
 
@@ -275,7 +412,7 @@ Simulative | Симулятор «SQL для анализа данных» (2022
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340250.jpg" />
+  <img src="Z:/picture/008/save_picture_340250.jpg" />
 </div>
 
 
@@ -304,7 +441,7 @@ Udemy, Denis Astahov | Основы работы с Git, GitHub и даже GitH
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340249.jpg" />
+  <img src="Z:/picture/008/save_picture_340249.jpg" />
 </div>
 
 
@@ -333,7 +470,7 @@ Udemy, Антон Ларичев | Microservices - паттерны и прак�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340248.jpg" />
+  <img src="Z:/picture/008/save_picture_340248.jpg" />
 </div>
 
 
@@ -359,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339579.jpg" />
+  <img src="Z:/picture/008/save_picture_339579.jpg" />
 </div>
 
 
@@ -386,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339574.jpg" />
+  <img src="Z:/picture/008/save_picture_339574.jpg" />
 </div>
 
 
@@ -415,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339571.jpg" />
+  <img src="Z:/picture/008/save_picture_339571.jpg" />
 </div>
 
 
@@ -443,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339449.jpg" />
+  <img src="Z:/picture/008/save_picture_339449.jpg" />
 </div>
 
 
@@ -469,7 +606,7 @@ Udemy | WebSockets: Полное Руководство / A Complete Guide to We
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339447.jpg" />
+  <img src="Z:/picture/008/save_picture_339447.jpg" />
 </div>
 
 
@@ -497,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339446.jpg" />
+  <img src="Z:/picture/008/save_picture_339446.jpg" />
 </div>
 
 
@@ -523,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339336.jpg" />
+  <img src="Z:/picture/008/save_picture_339336.jpg" />
 </div>
 
 
@@ -551,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339197.jpg" />
+  <img src="Z:/picture/008/save_picture_339197.jpg" />
 </div>
 
 
@@ -565,148 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E7782D87D4B7E6E99827DBC5B5599B476A66F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579580   (335956) от 27.09.2022
-
-Innopolis University, Олег Игонин | Введение в разработку корпоративных приложений на Java (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335956.jpg" />
-</div>
-
-
-###  Подробнее
-
-На онлайн-курсе Java Junior освоите современный стек для работы (SQL, Maven, JUnit, JDB) и познакомитесь с фреймворком Spring. Получите новую цифровую профессию и работайте на «удаленке» всего через три месяца.
-Чему вы научитесь на курсе?
-Понимать объектно-ориентированное программирование
-Писать код на Java, разбираться в синтаксисе языка программирования(   Читать дальше...   )Производство: Innopolis UniversityЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 89:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6A4E95953D88D02155B4BB9DB11B6211F8AC8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579575   (335952) от 27.09.2022
-
-Innopolis University, Иван Кривов | Основы Frontend-разработки (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Онлайн-курс «основы Frontend-разработки» поможет стать начинающим ИТ-специалистом всего за три месяца. Вы изучите новый стек технологий, научитесь писать код на Javascript и применять библиотеку Redux.
-Чему вы научитесь на курсе?Верстать адаптивные веб-страницы на HTML/CSS
-Писать код на JavaScript
-Разбираться в синтаксисе языка программирования(   Читать дальше...   )Производство: Innopolis UniversityЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 29:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A29CE7C52F6829B0F6E37F40474044B2079A353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579564   (335950) от 27.09.2022
-
-Нетология, Павел Козлов | Продвинутый курс Power BI & Excel PRO (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите расширенные возможности инструментов Power Query, Power Pivot & DAX
-Освойте продвинутые техники визуализации данных
-Чему научитесь на курсе:
-Обрабатывать данные.Работать с большими массивами данных из разных источников, не хуже программистов строить сложные запросы с множеством параметров(   Читать дальше...   )Производство: НетологияЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 14:23:43Реклама: Присутствуют наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC8A7A981862A1397E87CC7A77B59F3BDA4D018
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319099   (334295) от 13.10.2019
-
-itgid | Интернет магазин на node.js (2019) PCRec [H.264]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы создаем полноценный Интернет-магазин. Все шаги - записаны в видеоуроках. Начинаем разработку с установки необходимых программ и их настройки. Все шаги и объяснение полностью разобрано в видеоуроках по шагам.
-
-К каждому уроку доступны исходные коды. Вы можете скачать сразу готовый проект в готовом виде, либо изучать по шагам по видео, сравнивая готовые коды с написанным! (   Читать дальше...   )Производство: itgidЖанр: программирование, JavaScript, Node.jsПродолжительность: 12:30:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D1AB0D5D1FE8A6C4FB2BC87B9EC5E73E52EF4CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 259526   (334248) от 17.11.2010
-
-lynda.com | Visual Studio 2010 Essential Training [2010] [EN] PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334248.jpg" />
-</div>
-
-
-###  Подробнее
-
-В курсе Visual Studio 2010 Essential Training автор Walt Ritscher демонстрирует, как разрабатывать полнофункциональные приложения для разнообразных платформ. Начиная с обзора интегрированной среды разработчика, курс охватывает работу по редактированию кода, навигации, форматированию кода и инсталляции приложений. Также включены уроки по работе и загрузке тестов, отладочному коду.
-Файлы упражнений прилагаются к курсу.Жанр: Visual StudioПродолжительность: 08:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E5D8E57D4E277E20DE8E76053936125292E6AE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

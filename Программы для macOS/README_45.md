@@ -1,3 +1,139 @@
+###  Публикация: 1012674   (793319) от 01.05.2016
+
+CrossOver 15.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793319.jpg" />
+</div>
+
+
+###  Подробнее
+
+CrossOver - запуск любых Windows программ под Mac OS. CrossOver сфокусирован на производительности 3D графики в играх.
+Crossover, основан на коде Wine и предназначен для выполнения программ и игр, написанных для платформы Windows.
+
+CrossOver позволит вам запускать множество Windows приложений на вашем Mac. Приложения интегрируются в операционную систему: запускайте (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 31 марта 2016Разработчик: CodeWeavers Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F3ADF71DAECD5DCADD9DAA9A9896DE3C554185
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123045   (793082) от 06.04.2017
+
+Hear 1.3.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hear значительно улучшает качество звука в фильмах и музыке во всех приложениях! Имеет большое количество настроек, за счет чего позволяет добиться отличного звучания. С Hear музыка звучит роскошней, звук и диалоги в фильмах – чище, а в играх звук будет взрывать ваш мозг!
+
+Программа рассчитана для улучшенного воспроизведения мультимедиа. Фильмы звучат по-новому, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 июня 2016Разработчик: Prosoft Engineering, Inc.Поддерживаемая ОС: OS X 10.7.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B313F78E35FBA39FAB196D7CF731FEAFC7AB88C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274361   (793051) от 07.01.2019
+
+Canary Mail 2.18 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Canary Mail может похвастаться большими возможностями и неплохой их реализацией, что вкупе с элегантным дизайном и удобным интерфейсом делает Canary весьма интересным экземпляром. Можно сказать, что перед нами Airmail с фирменной Snooze из Mailbox и другими популярными функциями современных email-клиентов.Тип издания: macOS SoftwareРелиз состоялся: 30.12.2018Разработчик: Mailr Tech LLPПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636BEA222BD8CD6E2B60BF2A26F1D35F9FE20FA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509924   (793044) от 14.11.2021
+
+BookmarkTiles 1.7.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793044.jpg" />
+</div>
+
+
+###  Подробнее
+
+BookmarkTiles - это надстройка закладок для вашего браузера, она разработана в основном для Safari.
+BookmarkTiles имитирует ранее известные TopSites функций Safari и возвращает его во все новые версии Safari вместе с некоторыми другими функциями, которые никогда не появлялись и не упали много лет назад.Тип издания: macOS SoftwareРелиз состоялся: 28.10.2021Разработчик: © 2021 Serge SanderПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB18000CBF1CE45CB25E37D05F0842D1EC37355
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509948   (793032) от 14.11.2021
+
+IconShop - Making Icons Easily 1.0.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преобразуйте символы SF или пользовательскую строку в значок, экспортируйте набор изображений или значок приложения для Xcode.Тип издания: macOS SoftwareРелиз состоялся: 06.11.2021Разработчик: © 2021 Wenzhi HuПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6AE2B67F4D475AE84D251EF4C49A3CC9660E802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274341   (792995) от 07.01.2019
 
 DesiGN Brochures Templates 3.0.2 [Multi/Ru]
@@ -6,7 +142,7 @@ DesiGN Brochures Templates 3.0.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792995.jpg" />
+  <img src="Z:/picture/008/save_picture_792995.jpg" />
 </div>
 
 
@@ -34,7 +170,7 @@ InstaGrid 3.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792986.jpg" />
+  <img src="Z:/picture/008/save_picture_792986.jpg" />
 </div>
 
 
@@ -60,7 +196,7 @@ Profanity Filter 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792983.jpg" />
+  <img src="Z:/picture/008/save_picture_792983.jpg" />
 </div>
 
 
@@ -87,7 +223,7 @@ Cascadea 2.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792980.jpg" />
+  <img src="Z:/picture/008/save_picture_792980.jpg" />
 </div>
 
 
@@ -113,7 +249,7 @@ Alarm Clock Pro 14 v14.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792969.jpg" />
+  <img src="Z:/picture/008/save_picture_792969.jpg" />
 </div>
 
 
@@ -140,7 +276,7 @@ Switch 1.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792942.jpg" />
+  <img src="Z:/picture/008/save_picture_792942.jpg" />
 </div>
 
 
@@ -166,7 +302,7 @@ Show Passwords 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792927.jpg" />
+  <img src="Z:/picture/008/save_picture_792927.jpg" />
 </div>
 
 
@@ -193,7 +329,7 @@ Minitube for YouTub‪e‬ 3.9.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792834.jpg" />
+  <img src="Z:/picture/008/save_picture_792834.jpg" />
 </div>
 
 
@@ -219,7 +355,7 @@ LilyView 1.5.1 fix [Rus/En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792768.jpg" />
+  <img src="Z:/picture/008/save_picture_792768.jpg" />
 </div>
 
 
@@ -246,7 +382,7 @@ Reeder 3.1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792665.jpg" />
+  <img src="Z:/picture/008/save_picture_792665.jpg" />
 </div>
 
 
@@ -275,7 +411,7 @@ TableEdit Pro 1.4.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792644.jpg" />
+  <img src="Z:/picture/008/save_picture_792644.jpg" />
 </div>
 
 
@@ -303,7 +439,7 @@ TotalSpaces 2 v2.8.12 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792634.jpg" />
+  <img src="Z:/picture/008/save_picture_792634.jpg" />
 </div>
 
 
@@ -329,7 +465,7 @@ Mountain Duck 3.4.0 (build 15624) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792632.jpg" />
+  <img src="Z:/picture/008/save_picture_792632.jpg" />
 </div>
 
 
@@ -358,7 +494,7 @@ Money Pro - Personal Finance 2.5.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792577.jpg" />
+  <img src="Z:/picture/008/save_picture_792577.jpg" />
 </div>
 
 
@@ -386,7 +522,7 @@ Artstudio Pro 3.2.15 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792259.jpg" />
+  <img src="Z:/picture/008/save_picture_792259.jpg" />
 </div>
 
 
@@ -412,7 +548,7 @@ MacTotalSecurity for Mac 9.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792198.jpg" />
+  <img src="Z:/picture/008/save_picture_792198.jpg" />
 </div>
 
 
@@ -438,7 +574,7 @@ KCNcrew Pack 11-15-21 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792151.jpg" />
+  <img src="Z:/picture/008/save_picture_792151.jpg" />
 </div>
 
 
@@ -464,7 +600,7 @@ Amazing Slow Downer 4.1.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792150.jpg" />
+  <img src="Z:/picture/008/save_picture_792150.jpg" />
 </div>
 
 
@@ -490,7 +626,7 @@ Watermark Plus 1.5.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792142.jpg" />
+  <img src="Z:/picture/008/save_picture_792142.jpg" />
 </div>
 
 
@@ -517,7 +653,7 @@ macOS Server 5.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791891.jpg" />
+  <img src="Z:/picture/008/save_picture_791891.jpg" />
 </div>
 
 
@@ -543,7 +679,7 @@ Any Video Converter Ultimate 6.1.9 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791681.jpg" />
+  <img src="Z:/picture/008/save_picture_791681.jpg" />
 </div>
 
 
@@ -556,140 +692,6 @@ Any Video Converter Ultimate 6.1.9 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7743E0F619F0AF54BAED87407501AEABFC23353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274995   (791666) от 09.01.2019
-
-iPasscode Unlocker 1.1.0 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791666.jpg" />
-</div>
-
-
-###  Подробнее
-
-iPasscode Unlocker - небольшая утилита, которая поможет вам в том случае, когда вы забыли пароль от заблокированного экрана iPhone/iPad/iPod, причем независимо от того, это цифровой код (4 или 6 значный), отпечаток пальца или Face ID. Приложение совместимо почти со всеми устройствами на iOS, включая последний iPhone XS(Max)/XR и iOS12.
-
-Три простых шага и ваш iPhone (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.01.2019Разработчик: JoyshareПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:693F6A69BC82E64B74AF66AD05FBA3EE8EA9175B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510439   (791589) от 16.11.2021
-
-Alfred 4 Powerpack 4.6.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
-Вызвать окно Alfred очень просто — по умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.11.2021Разработчик: Running with Crayons LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C5945A779C46357F806B83BFA5B536FB9EA668A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510498   (791586) от 16.11.2021
-
-Net Radar 1.3 fix [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Net Radar отслеживает состояние вашего VPN-соединения и показывает текущее географическое положение публичного IP-адреса вашего интернет-соединения в строке меню.
-Net Radar отслеживает подключение к VPN на двух уровнях, внутренне и внешне. Внутренне - Net Радар отслеживает начало и конец VPN соединений. После каждого изменения, Net-радар проверяет статус VPN извне (   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 28.11.2020Разработчик: BetamagicПоддерживаемая ОС: macOS X 10.14 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DBF485E468D27EFB56E52B859E329644510176B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510474   (791531) от 16.11.2021
-
-Wondershare Photo Cutter 1.0.7 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эффективное средство для удаления фона, позволяющее вырезать объекты всего за несколько кликов.Тип издания: macOS SoftwareРелиз состоялся: 21.09.2018Разработчик: © 2018 WondershareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82C7A5D85737B3E2812307DD0659A6D90D63E305
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387594   (791334) от 02.06.2020
-
-Metakine Decompose 1.2.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Decompose - это приложение, позволяющее легко и безошибочно извлекать элементы из изображений, чтобы использовать их для создания своих фото. Это идеальный инструмент для создания изображений для веб-страниц, газет и журналов или просто для ваших собственных творений. Извлеченные объекты сохраняются в виде «прозрачных» файлов TIFF. Возможно также корректировать цвета, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: One Periodic Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B246077A6BB9B7202C858AF85C6AB79B9482590
 ```
 
 https://mybot314.ru/tekegram_catalog/

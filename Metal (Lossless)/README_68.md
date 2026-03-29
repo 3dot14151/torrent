@@ -1,3 +1,91 @@
+###  Публикация: 1501360   (835247) от 10.10.2021
+
+Gus G. - Quantum Leap (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Guitar Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_835247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Греческий гитарист-виртуоз Гас Джи (Gus G.), хорошо известный в рок- и метал-кругах по работе с Оззи Осборном (Ozzy Osbourne) и собственной группой FIREWIND, выпустит новый сольный альбом "Quantum Leap" 8 октября на лейбле AFM.
+Он заявил: "Это мой первый полностью инструментальный сольный альбом. Это означает, что там вообще нет вокала, нет гостевых (   Читать дальше...   )01. Into the Unknown (05:22)
+02. Exosphere (03:39)
+03. Quantum Leap (04:48)
+04. Chronesthesia (05:01)(   Читать дальше...   )Жанр: Heavy Metal, Guitar InstrumentalПродолжительность: 01:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FD31B137C945A12931B885607740AB446304D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501447   (835203) от 10.10.2021
+
+Dream Theater - Train Of Thought (2003) Reissue, Remastered, 2009, Elektra [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_835203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As I Am (7:49)
+02. This Dying Soul (11:28)
+03. Endless Sacrifice (11:25)
+04. Honor Thy Father (10:15)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F24A6E9805719D22FCE3F4D4C831F5986B572286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501528   (835196) от 10.10.2021
+
+Dream Theater - Master Of Puppets - Live In Barcelona (2002) Reissue, Remastered, 2021, Inside Out Music [FLAC|Lossless|image + .cue] <Progressive Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_835196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Battery (5:16)
+02. Master Of Puppets (8:46)
+03. The Thing That Should Not Be (7:05)
+04. Welcome Home (Sanitarium) (6:44)(   Читать дальше...   )Жанр: Progressive Metal, Thrash MetalПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48DB2718DFC9DD069D5C685ABFC74C9FDB4700E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501345   (835123) от 10.10.2021
 
 Till Lindemann - Ich Hasse Kinder (2021) Single [FLAC|Lossless|image + .cue] <NDH, Industrial Metal>
@@ -6,7 +94,7 @@ Till Lindemann - Ich Hasse Kinder (2021) Single [FLAC|Lossless|image + .cue] <ND
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835123.jpg" />
+  <img src="Z:/picture/008/save_picture_835123.jpg" />
 </div>
 
 
@@ -33,7 +121,7 @@ Queensryche - Operation Mindcrime (2021) Deluxe Edition, 4CD [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834954.jpg" />
+  <img src="Z:/picture/008/save_picture_834954.jpg" />
 </div>
 
 
@@ -62,7 +150,7 @@ Devour The Day - S.O.A.R. (2016) [FLAC|Lossless|tracks + .cue] <Hard-rock, Alter
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834578.jpg" />
+  <img src="Z:/picture/008/save_picture_834578.jpg" />
 </div>
 
 
@@ -91,7 +179,7 @@ Novembre - URSA (2016) [FLAC|Lossless|tracks + .cue] <Progressive-metal, Doom-me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834577.jpg" />
+  <img src="Z:/picture/008/save_picture_834577.jpg" />
 </div>
 
 
@@ -120,7 +208,7 @@ Black Sites - Untrue (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833756.jpg" />
 </div>
 
 
@@ -149,7 +237,7 @@ Aryem - The Bird's Assembly (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833755.jpg" />
 </div>
 
 
@@ -178,7 +266,7 @@ Reaper's Revenge - Versus (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833753.jpg" />
 </div>
 
 
@@ -207,7 +295,7 @@ Accuser - The Forlorn Divide (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832720.jpg" />
 </div>
 
 
@@ -236,7 +324,7 @@ Artillery - Penalty By Perception (2016) Limited Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832713.jpg" />
 </div>
 
 
@@ -265,7 +353,7 @@ Moonsorrow - Jumalten aika (2016) Limited Edition 2CD [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832637.jpg" />
 </div>
 
 
@@ -294,7 +382,7 @@ Striker - Stand In The Fire (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Sp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832470.jpg" />
 </div>
 
 
@@ -323,7 +411,7 @@ Carcass - Torn Arteries (2021) Japanese Edition [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831895.jpg" />
 </div>
 
 
@@ -352,7 +440,7 @@ Doro - Warlock - Triumph and Agony Live (2021) Japanese Edition, Live [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831824.jpg" />
 </div>
 
 
@@ -381,7 +469,7 @@ Beast of Revelation - The Ancient Ritual of Death (2020) [FLAC|Lossless|Web-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831667.jpg" />
 </div>
 
 
@@ -410,7 +498,7 @@ VA - Women of Doom (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Stoner Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831665.jpg" />
 </div>
 
 
@@ -439,7 +527,7 @@ Lord Vigo - Danse De Noir (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Epic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831583.jpg" />
 </div>
 
 
@@ -468,7 +556,7 @@ Atrox - Orgasm (2003) [FLAC|Lossless|image + .cue] <Melodic Doom Metal, Avant-ga
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831577.jpg" />
 </div>
 
 
@@ -497,7 +585,7 @@ Bad Whispers - Burn Out (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830832.jpg" />
 </div>
 
 
@@ -526,7 +614,7 @@ Sodom - Bombenhagel (2021) EP [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830110.jpg" />
 </div>
 
 
@@ -554,7 +642,7 @@ Chadwick Death - Black Magic (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830099.jpg" />
 </div>
 
 
@@ -583,7 +671,7 @@ Cruenta Lacrymis - Sweetness And Blasphemy (2015) [FLAC|Lossless]<Symphonic Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_830033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_830033.jpg" />
 </div>
 
 
@@ -612,7 +700,7 @@ VA - The Metallica Blacklist (2021) 4xCD, Box Set, Japanese Edition [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829889.jpg" />
 </div>
 
 
@@ -641,7 +729,7 @@ Aether Realm (Æther Realm) - Redneck Vikings from Hell (2020) [FLAC|Lossless|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829740.jpg" />
 </div>
 
 
@@ -655,93 +743,6 @@ Aether Realm (Æther Realm) - Redneck Vikings from Hell (2020) [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F07BE22804C49879B01073D6392FEEF283B7B697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502316   (828245) от 14.10.2021
-
-Trivium - In the Court of the Dragon (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. X
-02. In The Court Of The Dragon
-03. Like A Sword Over Damocles
-04. Feast Of Fire(   Читать дальше...   )Жанр: Thrash Metal, Heavy MetalПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABC85C4559C60FBF92DF55004EEC5A0F6F656E9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381394   (827822) от 06.05.2020
-
-Havok - V (2020) [FLAC|Lossless|tracks + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Post-Truth Era [03:54]
-02. Fear Campain [03:57]
-03. Betrayed by Technology [03:44]
-04. Ritual of the Mind [04:10](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA4762944818A4090DEFF503788B54A63E90EBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263292   (827656) от 06.05.2020
-
-Tarot - 9 Albums, 1 Compilation, 2 Lives (1986 - 2011) 15CD [FLAC|Lossless|image + .cue|tracks + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tarot — финская группа, играющая хеви-метал. Наиболее известны они своей песней «Wings of Darkness» из альбома 1986 года Spell of Iron. Группа никогда не была очень известна за пределами Финляндии, но приобрела достаточно широкую известность, когда Марко присоединился к Nightwish.Список альбомов:
-1986 - The Spell Of Iron
-1988 - Follow Me Into Madness
-1993 - To Live Forever(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 15:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F24F1BDFA37C2E9C9BA9868BC9E9EC18EBF9F70
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,131 @@
+###  Публикация: 1170851   (398742) от 02.10.2017
+
+The Gary Burton Quartet - Duster (1967) 2014, Sony Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_398742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballet [04:59]
+02. Sweet Rain [04:27]
+03. Portsmouth Figurations [03:08]
+04. General Mojo's Well Laid Plan [05:01](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9653F67BB800799A8CE4ABEEEFFEF6A716D053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566650   (398243) от 28.10.2012
+
+Courtney Pine - Journey to the Urge Within (1986) [APE|Lossless]<Post-Bop, Saxophone Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_398243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss Interpret
+ 02. I Believe
+ 03. Peace
+ 04. Dolores
+ 05. As We Would Say
+ 06. Children Of The Ghetto
+ 07. When, Where, How And Why
+ 08. C.G.C.
+ 09. Seen
+ 10. Sunday SongЖанр: Post-Bop, Saxophone JazzПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566595   (398195) от 28.10.2012
+
+Cpt Kirk - Starship Cadillac (2010) [APE|Lossless]<Jazz-Rock, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_398195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleek
+02. Pickled Pigs Feet
+03. Paramedic
+04. Temperance
+05. Drop The Chalupa
+06. Starship Cadilla
+07. Chase The Blues Away
+08. DISGRUNTLED CONSUMATE MONKEY intro
+09. Disgruntled Consumate Monkey
+10. Just In Case(   Читать дальше...   )Жанр: Jazz-Rock, FusionПродолжительность: 01:00:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170878   (397803) от 03.10.2017
+
+Woody Herman - Blowin' Up a Storm (1958) 1994, Drive Archive [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_397803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woodchopper's Ball [04:31]
+02. Northwest Passage [03:02]
+03. I Cover the Waterfront [03:21]
+04. Prelude a la Cha-Cha [04:04](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0B4447C57A7968FE27B6B8C574BD336C818714B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171132   (397799) от 03.10.2017
 
 Jackie McLean - Jackie's Bag (1959, 1960) 2010, Analogue Productions [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -6,7 +134,7 @@ Jackie McLean - Jackie's Bag (1959, 1960) 2010, Analogue Productions [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397799.jpg" />
+  <img src="Z:/picture/008/save_picture_397799.jpg" />
 </div>
 
 
@@ -35,7 +163,7 @@ Hank Mobley - A Caddy for Daddy (1965) 2009, Analogue Productions [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397797.jpg" />
+  <img src="Z:/picture/008/save_picture_397797.jpg" />
 </div>
 
 
@@ -64,7 +192,7 @@ Nicki Parrott - Dear Blossom (2017) Arbor Records [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397695.jpg" />
+  <img src="Z:/picture/008/save_picture_397695.jpg" />
 </div>
 
 
@@ -93,7 +221,7 @@ Cordovan - Highway 10 Blues (2006) [FLAC|Lossless]<Nu Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397182.jpg" />
+  <img src="Z:/picture/008/save_picture_397182.jpg" />
 </div>
 
 
@@ -128,7 +256,7 @@ Charles Sullivan - Re-Entry (1976) 2010, Whynot [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396788.jpg" />
+  <img src="Z:/picture/008/save_picture_396788.jpg" />
 </div>
 
 
@@ -157,7 +285,7 @@ Miroslav Vitous - Infinite Search (1969) 1998, EastWest [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396783.jpg" />
+  <img src="Z:/picture/008/save_picture_396783.jpg" />
 </div>
 
 
@@ -186,7 +314,7 @@ John Handy - Mosaic Select 35 (1965 - 1968) 3CD, 2009, Mosaic Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395821.jpg" />
+  <img src="Z:/picture/008/save_picture_395821.jpg" />
 </div>
 
 
@@ -215,7 +343,7 @@ Erik Soderlind - Twist For Jimmy Smith (2009) Prophone Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395815.jpg" />
+  <img src="Z:/picture/008/save_picture_395815.jpg" />
 </div>
 
 
@@ -244,7 +372,7 @@ Bria Skonberg - With A Twist (2017) Sony Music/Okeh [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395762.jpg" />
+  <img src="Z:/picture/008/save_picture_395762.jpg" />
 </div>
 
 
@@ -273,7 +401,7 @@ Chris Barber's Jazz Band - he Original Copenhagen Concert, Odd Fellow Palæet, 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394929.jpg" />
+  <img src="Z:/picture/008/save_picture_394929.jpg" />
 </div>
 
 
@@ -302,7 +430,7 @@ Ruby Braff - Ruby Braff Goes “Girl Crazy” (1958) 2009, Wounded Bird Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394926.jpg" />
+  <img src="Z:/picture/008/save_picture_394926.jpg" />
 </div>
 
 
@@ -331,7 +459,7 @@ EABS - Repetitions (Letters To Krzysztof Komeda) (2017) [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394892.jpg" />
+  <img src="Z:/picture/008/save_picture_394892.jpg" />
 </div>
 
 
@@ -360,7 +488,7 @@ Art Blakey - The Prime Source (1954 - 1956) 4CD, 2007, Proper Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394165.jpg" />
+  <img src="Z:/picture/008/save_picture_394165.jpg" />
 </div>
 
 
@@ -389,7 +517,7 @@ Terry Gibbs - Plays Jewish Melodies In Jazztime (1963) 2002, Verve [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394164.jpg" />
+  <img src="Z:/picture/008/save_picture_394164.jpg" />
 </div>
 
 
@@ -418,7 +546,7 @@ VA - Disney Adventures in Bossa Nova (2009) Disney [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394097.jpg" />
+  <img src="Z:/picture/008/save_picture_394097.jpg" />
 </div>
 
 
@@ -447,7 +575,7 @@ Diana Krall - Glad Rag Doll (Deluxe Edition) (2012) [FLAC|Lossless]<Jazz / Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_393685.jpg" />
+  <img src="Z:/picture/005/save_picture_393685.jpg" />
 </div>
 
 
@@ -482,7 +610,7 @@ Art Taylor - Taylor's Wailers (1957) 2013, Analogue Productions [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393249.jpg" />
+  <img src="Z:/picture/008/save_picture_393249.jpg" />
 </div>
 
 
@@ -511,7 +639,7 @@ Fogh Depot - Fogh Depot (2015) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393231.jpg" />
+  <img src="Z:/picture/008/save_picture_393231.jpg" />
 </div>
 
 
@@ -540,7 +668,7 @@ Mindi Abair And The Boneshakers - The EastWest Sessions (2017) [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393176.jpg" />
+  <img src="Z:/picture/008/save_picture_393176.jpg" />
 </div>
 
 
@@ -569,7 +697,7 @@ VA - Bossa N' Rihanna (2017) [FLAC|Lossless|image + .cue] <Jazz, Bossa Nova, Chi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393107.jpg" />
+  <img src="Z:/picture/008/save_picture_393107.jpg" />
 </div>
 
 
@@ -598,7 +726,7 @@ Manu Katche - Manu Katche (2012) [FLAC|Lossless]<Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_392911.jpg" />
+  <img src="Z:/picture/005/save_picture_392911.jpg" />
 </div>
 
 
@@ -633,7 +761,7 @@ Tape Five - Swing Patrol (2012) [FLAC|Lossless]<Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_392765.jpg" />
+  <img src="Z:/picture/005/save_picture_392765.jpg" />
 </div>
 
 
@@ -653,122 +781,6 @@ Tape Five - Swing Patrol (2012) [FLAC|Lossless]<Swing>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172827   (392100) от 09.10.2017
-
-Eddie Heywood - 1944 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T'Ain't Me [03:16]
-02. Indiana [02:38]
-03. Blue Lou [02:55]
-04. Carry Me Back To Old Virginny [03:23](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E709EB1D72A16C3F6844AB8D88A670F45F0CC977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173084   (391380) от 10.10.2017
-
-Howard Roberts - Jaunty-Jolly! & Guilty!! (1967) 2001, EMI-Capitol [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Will Wait For You [02:26]
-02. So Nice (Summer Samba) [02:42]
-03. Winchester Cathedral [01:53]
-04. Sing No Blues [03:59](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC51A5A4B4DEFAFF60C2C1DA13D6FD70D1DFDD52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173308   (390653) от 11.10.2017
-
-Jonathan Poretz - A Lot Of Livin' To Do (2006) ArtFlo Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Lot of Livin' to Do [05:52]
-02. My Time of Day/I've Never Been in Love Before [06:00]
-03. Then I'll Be Tired of You [05:16]
-04. Come Rain or Come Shine [04:24](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:783DA7EBAF2D1431610AA3A8FB5244ABBDDB27BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173303   (390650) от 11.10.2017
-
-Kuh Ledesma - Unforgettable (1986) Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fascinating Rhythm [02:57]
-02. It Had to Be You [03:59]
-03. Too Marvelous for Words [03:19]
-04. Singing in the Rain [03:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7998FC6C56576B702BB33392AE3E8187928FDB8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

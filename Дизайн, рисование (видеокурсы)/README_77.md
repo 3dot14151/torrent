@@ -1,3 +1,32 @@
+###  Публикация: 1664276   (185683) от 25.09.2023
+
+Motion Design School | Blender Workout (2023) WEB-DL [AD] [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_185683.jpg" />
+</div>
+
+
+###  Подробнее
+
+О чем этот курс?
+Blender становится одним из самых популярных программ, потому что он включает в себя все функции, которые делают ваш пользовательский интерфейс более мощным и интуитивно понятным.
+Это рендеринг, моделирование, скульптинг, анимация, риггинг, VFX , симуляция, редактирование видео и даже кадр за кадром с карандашом Grease.
+Все включено в одном месте, (   Читать дальше...   )Жанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 05:09:40Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49E75BC5B5A9878D7C430FB323BB9A1AD46A2DA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664589   (185226) от 26.09.2023
 
 Художник Онлайн, Ольга Кабаева | Две столицы акварелью (2023) WEB-DL [AD] [RU]
@@ -6,7 +35,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185226.jpg" />
 </div>
 
 
@@ -33,7 +62,7 @@ ZartSchool, Татьяна Зубова | Портрет. Онлайн курс 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185162.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ Kalachevaschool, Аксинья La Paloma | Дети в цифровой илл�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185154.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ Udemy, Eric Ebling | Master Houdini FX: Create Stunning Visual Effects rigs (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185139.jpg" />
 </div>
 
 
@@ -117,7 +146,7 @@ Skvot, Саша Богатов | Как разбудить креативнос�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185057.jpg" />
 </div>
 
 
@@ -146,7 +175,7 @@ Udemy, Nikolay Stanchev | Unreal Engine 5 The Complete Beginner's Cinematic Cour
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185026.jpg" />
 </div>
 
 
@@ -172,7 +201,7 @@ Professor Of How, Kishor |  Master 3D With Professor (2022) PCRec [Hindi]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184923.jpg" />
 </div>
 
 
@@ -198,7 +227,7 @@ Wingfox, David Zavala | Female Bust Course in Marmoset Toolbag (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184821.jpg" />
 </div>
 
 
@@ -224,7 +253,7 @@ Pixel, Татьяна Климань | Иллюстрации в Adobe Illustrat
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184780.jpg" />
 </div>
 
 
@@ -253,7 +282,7 @@ Udemy, Кирилл Несмелов | Дизайн мобильного при�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184718.jpg" />
+  <img src="Z:/picture/004/save_picture_184718.jpg" />
 </div>
 
 
@@ -279,7 +308,7 @@ Enterclass, Владислав Татаринов | Букет сирени (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184695.jpg" />
 </div>
 
 
@@ -305,7 +334,7 @@ Geekbrains | Дизайн и проектирование интерфейсов
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184690.jpg" />
+  <img src="Z:/picture/004/save_picture_184690.jpg" />
 </div>
 
 
@@ -334,7 +363,7 @@ Udemy, Andrei Neagoie и др. | Полный веб и мобильный ди�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184661.jpg" />
+  <img src="Z:/picture/004/save_picture_184661.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ CGcircuit, Bishoy Khalifa | Sand Bag Tearing in Houdini (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_184577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184577.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Rebelway, Val David | Using Solaris in Houdini (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184377.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Rebelway, Corbin Mayne | VEX For Houdini Artists (2020) WEB-DL [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184266.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ Wingfox, Steffen Hampel | Creating a Photorealistic Japanese Alleyway with Maya 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184079.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Granich.Design, Вадим Гранич | Графсистема UI-дизайн
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184076.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Wingfox, MikeHong | Creating a photorealistic character Joan of Arc (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184068.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Wingfox, David Masana Lafuente | 3D Game-Ready Environment In Unreal Engine 4 (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184055.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ CGcircuit, Stefan Bredereck | FX MAYHEM 102 - Smokeless Fire & Flames (2021) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_183899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_183899.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ CG Forge, Tyler Bay | Pyro III – Large Explosions (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_183856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_183856.jpg" />
 </div>
 
 
@@ -605,7 +634,7 @@ Enterclass, Анна Иванова | Ахалтекинец (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183836.jpg" />
 </div>
 
 
@@ -631,7 +660,7 @@ Enterclass, Сергей Лысый | Солнце за костелом (2023) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183821.jpg" />
 </div>
 
 
@@ -657,7 +686,7 @@ New Masters Academy, Steve Huston | Художественная анатоми�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183800.jpg" />
+  <img src="Z:/picture/004/save_picture_183800.jpg" />
 </div>
 
 
@@ -668,34 +697,6 @@ New Masters Academy, Steve Huston | Художественная анатоми�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DACED13699628EF87719F4F65A93F3D0A0134B91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665016   (183796) от 28.09.2023
-
-CGcircuit, Ciobanu Razvan | Advanced Particles 1: Geometry Based Simulations (2022) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_183796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Advanced Particles 1: Моделирование на основе геометрии.
-- В этом курсе мы возьмем анимацию открывающейся руки и будем использовать ее для генерации частиц. Мы научимся использовать геометрию для создания различных атрибутов и как заставить наши частицы использовать эти атрибуты.
-- Мы также узнаем, как заставить наши частицы прилипать к деформирующейся (   Читать дальше...   )Производство: CGcircuitЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 03:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFFE94139B15A5078B1D5FB6E19847CE2C7ADA8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
